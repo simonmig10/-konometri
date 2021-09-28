@@ -1,0 +1,2 @@
+# -konometri
+Økonometri 3 
